@@ -1,4 +1,4 @@
-# 
+# Inteligente perpetual trading bot complementos para Mac OS | Avanzado perpetual trading bot complementos para PC Windows. Con detección de ataques sandwich y firma de transacciones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
